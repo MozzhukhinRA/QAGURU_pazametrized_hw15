@@ -1,0 +1,1 @@
+# QAGURU_pazametrized_hw15
